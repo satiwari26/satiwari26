@@ -6,4 +6,4 @@ In addition to my interest in computer engineering, I'm also passionate about gr
 
 Thanks for stopping by, and I look forward to connecting with you! 😄
 
-Contact ME: - [LinkedIn](https://www.linkedin.com/in/saumitra-tiwari-134206252/) - [Website](https://satiwari26.github.io/Portfolio-Webpage/)
+Contact ME: - [LinkedIn](https://www.linkedin.com/in/saumitra-tiwari-134206252/)
